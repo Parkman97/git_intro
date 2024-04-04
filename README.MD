@@ -1,1 +1,2 @@
 Samuel Parkman
+Parkmans@OregonState.edu
